@@ -1,4 +1,4 @@
-<img src="https://cdn.discordapp.com/attachments/831414649722241044/849981744333717524/ezgif.com-gif-maker_7-min.gif" align="right" width="360" height="640">
+<img src="https://cdn.discordapp.com/attachments/848117889265041429/850005740390449162/gif_26.gif" align="right" width="360" height="640">
 
 ### Merhabalar Ben Shonx!
 
