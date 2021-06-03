@@ -30,6 +30,5 @@
 </p>
 <br />  
 
-[Discord]: https://discord.gg/Ny79fK57eD
-[Instagram]: https://www.instagram.com/vaetrolwashere/?hl=tr
-[Instagram2]: https://www.instagram.com/pantria.1/?hl=tr
+[Discord]: https://discord.gg/ZgEqnMsBeR
+[Instagram]: https://www.instagram.com/shonx.exe
