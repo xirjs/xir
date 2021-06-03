@@ -5,7 +5,7 @@
 ###  Discord Üzerinde İyi Çalışmalar Yapmaya Çalışan Birisiyim!
 
 
-<font color="black" > Şu anda Çok Güzel Bi Proje İle Uğraşıyorum </font>
+<font color="black" > Sizlere Her Gün Projeler Paylaşacağım! </font>
 
 
 
