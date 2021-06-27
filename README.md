@@ -1,6 +1,6 @@
 <img src="https://cdn.discordapp.com/attachments/848117889265041429/850005740390449162/gif_26.gif" align="right" width="360" height="640">
 
-### Merhabalar Ben Shonx!
+### Merhabalar Ben Xir!
 
 ###  Discord Üzerinde İyi Çalışmalar Yapmaya Çalışan Birisiyim!
 
